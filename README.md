@@ -1,3 +1,3 @@
-You can get concept the from Youtube
+You can get the concept from Youtube
 
 https://youtu.be/ewcoaOK_JTI
